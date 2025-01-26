@@ -1,4 +1,4 @@
-(https://masterpiecer-images.s3.yandex.net/5cc1adc7a7c511ee9937ba0d8cad0506:upscaled)
+![](https://masterpiecer-images.s3.yandex.net/5cc1adc7a7c511ee9937ba0d8cad0506:upscaled)
 
 # Шрек  
 **Специализация:** Огр-универсал / Страж экосистем / Кризис-менеджер  
